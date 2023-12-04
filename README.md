@@ -1,1 +1,2 @@
 # odin-recipies
+Enter the abyss of Culinary Carnage, where recipes rebel against your taste buds. Brace yourself for flavor warfare, as ingredients clash in a dance of decadence. This Recipie book is not for the faint-hearted; it’s a gastronomic graveyard where taste buds meet their delicious demise. Bon appétit, brave souls!
